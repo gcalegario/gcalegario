@@ -1,16 +1,15 @@
-### Hi there 👋
+### vai embora  😄
 
-<!--
-**gcalegario/gcalegario** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+sla oq q vc esta fazendo aqui
 
-Here are some ideas to get you started:
+- infelizmente tenho q fazer esse treco chato
+- isso n vai mudar em absultamente em nada na minha vida
+- obgd governo ❤️
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### que odio 
+AAAAAAAAAAAH
+saco
+
+
+
+
